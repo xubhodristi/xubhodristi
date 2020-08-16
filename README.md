@@ -6,5 +6,5 @@ We invite interested and passionate people to work with us who are instilled wit
 Please drop us an email at: xubhodristi@gmail.com
 
 Follow us at: 
-https://www.facebook.com/Xubhodristi[Facebook]
-https://www.instagram.com/xubhodristi/[Instagram]
+[Facebook](https://www.facebook.com/Xubhodristi)
+[Instagram](https://www.instagram.com/xubhodristi/)
